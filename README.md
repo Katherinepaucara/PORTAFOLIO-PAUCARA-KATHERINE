@@ -1,2 +1,0 @@
-# PORTAFOLIO-PAUCARA.KATHERINE
- Argentina Programa
